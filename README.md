@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning about Java and sweep picking on guitar.
 - 💞️ I’m looking to collaborate on projects that will help me develop further.
 - 📫 How to reach me https://www.linkedin.com/in/emil-korzybski-09b822300/ / ekorzybski@gmail.com
-- ⚡ Fun fact: I love fantasy, rock music and RPG games.
+- ⚡ Fun fact: I love fantasy, rock music and tabletop RPG games.
 
